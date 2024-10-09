@@ -14,7 +14,7 @@
  
 <br>
  
-### Para contato comigo me segue a gente nas redes abaixo!
+### Para contato comigo me segue nas redes abaixo!
  
 <div> 
   
